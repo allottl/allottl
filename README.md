@@ -1,2 +1,1 @@
-![blahaj](https://i.imgur.com/nuEJGuW.jpg)    
-her
+![her](https://i.imgur.com/nuEJGuW.jpg)    
